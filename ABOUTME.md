@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @GawrylTV
+- 👀 I’m interested in playing games and coding sites.
+- 🌱 I’m currently learning HTML, CSS and JS.
+- 📫 How to reach me:
+  - 📨 MAIL: SOON
+  - 🤳 DISCORD: Gawryl#0001
